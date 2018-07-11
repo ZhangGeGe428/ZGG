@@ -1,0 +1,2 @@
+# ZGG
+Chinese traditional
